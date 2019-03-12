@@ -1,6 +1,6 @@
 All this talk of chocolate and donuts. 
 You want a steak. 
-A thick, juicy, salty steak. 
+A thick, juicy, grilled steak. 
 But, what kind? How about a Rib Eye? 
 Where dost thou find a slab of beautiful bovine around here? 
 
